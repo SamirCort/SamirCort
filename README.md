@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Sukuna's death
 - 📫 How to reach me is impossible.
 
-![](https://tenor.com/pt-BR/view/gojo-satoru-satoru-gojo-gojo-jujutsu-kaisen-manga-gif-17386688786442927012)
+![](https://media.tenor.com/EtRR0tU_7nAAAAAd/jjk-jujutsu-kaisen.gif)
