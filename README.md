@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @SamirCort
-- 👀 I’m interested in Jujutsu Kaisen
-- 🌱 I’m currently learning Domain Expansion
-- 💞️ I’m looking to collaborate on Sukuna's death
-- 📫 How to reach me is impossible.
+- 👀 Eu gosto de Jujutsu Kaisen
+- 🌱 Estou aprendendo expansão de domínio 
+- 💞️ Procuro matar o Sukuna
+- 📫 Eu sou intocável 
 
 ![](https://media.tenor.com/EtRR0tU_7nAAAAAd/jjk-jujutsu-kaisen.gif)
